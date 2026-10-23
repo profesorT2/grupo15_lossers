@@ -1,5 +1,8 @@
 Equipo e integrantes <br>
-Laura Rueda, María José Quintero y Juan Esteban Restrepo (Negocios Internacionales) y Allison Mancini (Ingeniería Industrial). <br>
+Laura Rueda,  <br>
+María José Quintero  <br>
+Juan Esteban Restrepo (Negocios Internacionales)  <br>
+Allison Mancini (Ingeniería Industrial). <br>
 Organización<br>
 Nombre y a qué se dedica: Carlos Diaz Esmeraldas, tienda local de bisutería y accesorios dirigida a jóvenes y estudiantes universitarios.<br>
 Contacto,nombre,cargo y quien del grupo lo conoce / Daniel Segura, trabajador, gemini 
